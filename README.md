@@ -1,4 +1,4 @@
-My wife runs an art studio. We've started advertising it with google in May 2019. We are now very frustrated with how easyily google managed to dishonestly charge $800. The gist of it is that google silently applies setting changes at their will that affect charges without our knowledge or consent. Chances of getting refunded right now seems pretty slim. I wouldn't be surprised if this had happend to other users google ads. Looking for some advice as to how we should proceed here.
+My wife runs an art studio. We've started advertising it with google in May 2019. We are now very frustrated with how easily google managed to dishonestly charge $800. The gist of it is that google silently applies setting changes at their will that affect charges without our knowledge or consent. Chances of getting refunded right now seems pretty slim. I wouldn't be surprised if this had happend to other users google ads. Looking for some advice as to how we should proceed here.
 
 For the curious, here's a more detailed turn of events:
 
